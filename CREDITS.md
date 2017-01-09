@@ -13,3 +13,11 @@
 - HeribertBreidsamer7
 - Plm
 - Captain Harris
+
+### Contributor
+
+- **Qu4rkey**
+  - Anpassung von Formaten
+  - Neue Formate
+- **dienerdanken**
+  - kleinere Änderungen in der Lügen/Ausreden Liste

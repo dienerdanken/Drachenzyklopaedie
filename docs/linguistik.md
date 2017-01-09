@@ -9,6 +9,7 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | Drachisch | Menschlich |
 | --------- | ---------- |
 | Wuu | Who |
+|etzalla|etzalda, _Fränkisch für jetzt, gerne als Füllwort_|
 
 --------
 

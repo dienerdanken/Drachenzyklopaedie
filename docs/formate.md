@@ -75,3 +75,21 @@ Ist mein Ernst, der Titel ist kein Fehler. Mit dem Format hat uns der Drache so 
 Mal wieder eine super Idee von unserem Drachen. Da er mittlerweile *(mit 20k+ Abonnenten)* einer der großen Player auf YouTube, also ein relevanter YouTube-Star geworden ist, möchte er endlich Antworten von seinen YouTube-Idolen Gronkh und iBlali haben. Dass diese ihn als **arrogant** und als **Spammer** sehen, findet der Drache natürlich gar nicht gut und möchte nun von ihnen wissen was das alles soll. Ob er Antworten bekommen hat? Sitzt Kalli im Rollstuhl? Man kann nur gespannt sein, welche Bigplayer als nächstes in die "Bekomme ich Antworten"-Staffel mit eingesetzt wird. Vielleicht E-nergie?
 
 **Aktuelle Folgenzahl**: 2
+
+
+**Frag Drache**
+
+Wenn man es erst einmal geschafft hat, ein erfolgreicher Youtuber zu sein, dann hat man natürlich eine Menge Fans mit einer Menge Fragen zur eigenen Person. Somit ist es unumgänglich, auch für diese Kategorie an Videos ein eigenes Format zu erstellen. In unregelmäßigen Abständen ruft der Drache auf Twitter dazu auf, dass ihm seine treuen Drachis unter dem Hashtag "#FragDrache" Fragen stellen können.
+
+**Aktuelle Folgenzahl**: 2
+
+
+**LustLord**
+
+Dieses Format ist eine Unterkategorie der **Frag Drache** Videos. Hier äußerst er sich zu Fragen die er per Twitter bekommen hat, die rein das Thema Sexualität beinhalten. Da der Drachenlord jedoch ca. 13% Haider hat, schleichen sich vorallem in der Unterkategorie manchmal, aber wirklich nur manchmal!, lustige Fragen
+
+ *Wichst du nur, oder steckst du dir auch den Finger in den Po?
+ Hast du dir schon mal einen Rettich oder anderes Gemüse eingeführt?* 
+ 
+ **Aktuelle Folgenzahl**: 6
+

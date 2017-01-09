@@ -80,8 +80,8 @@ Du fickst sogar noch deine Mutter, weil sie's Geld braucht
 Warum hier so viele Haider sind? (im Stream) Weil's Spastis sind
 Kagghaider
 ihr Spackos
-du armes Würstchen (RBS)
-Lügenschaf
+*schnauf* dann kann ich dich ja gleich mit bannen? Nä, du Asi! (im TS)
+
 
 
 --------

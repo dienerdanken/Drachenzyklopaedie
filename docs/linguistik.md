@@ -25,6 +25,7 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | Ramäidäi Lahne | Remedy Lane |
 | Sack Modscho | Stuck Mojo |
 | Hier cum de infäiders / infiddles | Here come the infidels |
+| Wenn der Adler kreist | When the eagle cries |
 
 --------
 

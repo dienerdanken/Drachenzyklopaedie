@@ -77,14 +77,14 @@ Mal wieder eine super Idee von unserem Drachen. Da er mittlerweile *(mit 20k+ Ab
 **Aktuelle Folgenzahl**: 2
 
 
-**Frag Drache**
+## Frag Drache
 
 Wenn man es erst einmal geschafft hat, ein erfolgreicher Youtuber zu sein, dann hat man natürlich eine Menge Fans mit einer Menge Fragen zur eigenen Person. Somit ist es unumgänglich, auch für diese Kategorie an Videos ein eigenes Format zu erstellen. In unregelmäßigen Abständen ruft der Drache auf Twitter dazu auf, dass ihm seine treuen Drachis unter dem Hashtag "#FragDrache" Fragen stellen können.
 
 **Aktuelle Folgenzahl**: 14
 
 
-**LustLord**
+## LustLord
 
 Dieses Format ist eine Unterkategorie der **Frag Drache** Videos. Hier äußerst er sich zu Fragen die er per Twitter bekommen hat, die rein das Thema Sexualität beinhalten. Da der Drachenlord jedoch ca. 13% Haider hat, schleichen sich vorallem zu diesem Thema manchmal, aber wirklich nur manchmal!, lustige Fragen ein:
 

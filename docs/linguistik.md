@@ -16,6 +16,15 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | Wenngehns is mei Nehm | Vengeance is my name |
 | Beck on Norffern Schoros | Back on northern shores |
 | Meddl |  Metal |
+| Blink Hundertzweiundachtzig | Blink-182 |
+| Glisa Grinn | Chelsea Grin |
+| Self Inflekschion / Inflekts | Self Inflicted |
+| Vadders Warning | Fates Warning |
+| Terrorist of Fleihht | Theories of Flight |
+| Päin of Sällwischen | Pain of Salvation |
+| Ramäidäi Lahne | Remedy Lane |
+| Sack Modscho | Stuck Mojo |
+| Hier cum de infäiders / infiddles | Here come the infidels |
 
 --------
 
@@ -33,3 +42,4 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | evamohr | forever |
 | I raigt | I know |
 | I have not full guys mit can't speak english | I have no one to speak english with |
+| You cannot my stream in your stream | You can't restream my stream in your stream |

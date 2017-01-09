@@ -96,3 +96,20 @@ Dieses Format ist eine Unterkategorie der **Frag Drache** Videos. Hier äußerst
  
  **Aktuelle Folgenzahl**: 6
 
+## Drache läuft
+
+Ja noch so ein jämmerlicher Versuch die Trolle zu trollen. Hat nicht so ganz geklappt und deswegen sitzt der Dicke wieder auf seinem dicken Arsch. Er meinte in dem Format würde er sich viel draußen aufhalten und Vlogs von seinen Lauftouren machen. Unteranderem wäre er in der Lage die Strecke nach Emskirchen und zurück, die ca. 10km *(in Wahrheit aber nur 5km)* in ein paar Minuten laufen zu können. Den 24 Km/h Drachen kennt doch jeder. Irgendwann ist ihm auf einmal aufgefallen, dass es plötzlich **ständig am Regnen ist** also hat er das Format ganz plötzlich gedroppt. Hatte keiner erwartet. Wirklich keiner.
+
+**Aktuelle Folgenzahl**: Völlig irrelevant
+
+## Drachenbanger Videos
+
+Keine Ahnung ob es da ein Format für gab, aber er wollte auf seinem Kanal "DrachenBanger" *(nein, das ist kein Pornokanal auf eroshare)* Headbang-Videos hochladen. Am Anfang klappte das noch gut, als er dann nur noch im Sitzen vorm Greenscreen kopfschütteln konnte, hatte er anscheinend wieder keinen Bock mehr und hat seitdem nichts mehr hochgeladen.
+
+**Aktuelle Folgenanzahl**: Guck ich jetzt nicht nach
+
+## Stromlose Zeit
+
+Das war das wohl beste, ungewollte Format vom Drachen. Es kamen **keine Videos**. Er versuchte es ab und zu mit Streams und hat ca. 4 Videos in der Zeit von 3 Monaten hochgeladen. Alle kamen langsam weg vom Mett und konnten sich auf wichtige Dinge konzentrieren. *(Zum Beispiel um Missionen wie 00 WC Frisch)* Rainer konnte sich mit Mangas eindecken und ist stockblöd durch Köln gelaufen um sich eine neue Mütze zu kaufen. Außerdem hat er sich in der Zeit bei World of Wolfram als Nebendarsteller das Geld verdient. Durch die bösen Hater wurde er dann doch rausgeschnitten, konnte sich aber leider vom Verdienst wieder Strom leisten.
+
+**Aktuelle Folgenanzahl**: Keine *(zum Glück)*

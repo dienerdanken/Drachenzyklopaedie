@@ -9,6 +9,7 @@
 ### Sonstiges
 * Wortdefinitionen
 * [Drachen-Lingustik und Übersetzungen](linguistik.md)
+* [Trinkspiele](trinkspiele.md)
 
 ### Links
 * [Lachschon](http://www.lachschon.de/forum/thread/show/52816/)

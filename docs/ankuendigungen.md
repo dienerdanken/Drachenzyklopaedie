@@ -2,6 +2,9 @@
 
 ### Videos
 - Drachenlord wird als richtig krasse Metalsau zurückkommen
+- Es wird jeden Tag ein neues Video kommen
+- Ich werde Drache läuft als Format im Namen ändern
+- Das ich auch Videos mache wo ich über Ernährung spreche
 
 ### Drachenschanze
 - Ich will eine Art Youtuber-Refugium bauen, wo Youtuber ungestört arbeiten können
@@ -16,3 +19,5 @@
 - Ich werde jetzt jeden Tag spazieren gehen
 - Ich werde jetzt jeden Tag sport machen
 - Ich werde mich jetzt besser ernähren und mehr auf meine Ernährung achten
+- Ich werde versuchen mich wieder mit dem Kampfsport zu betätigen
+- Ich werde schauen das des *(sein Bauch*) anders sein wird

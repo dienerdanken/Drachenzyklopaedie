@@ -25,13 +25,15 @@ versagt dabei aber meistens auf aller Länge. Dadurch das keiner mit ihm Weihnac
 und redet mich sich selbst.
 **Aktuelle Folgenzahl**: 2
 
+
 ## Drache Take (?)
 
-Ganz ehrlich, keine Ahnung was an dem Format anders ist. Ist eigentlich wie der Time of Metal nur über alle anderen Themen.
+Ganz ehrlich, keine Ahnung was an dem Format anders ist. Ich weiß auch nicht ob das im Titel ein Rechtschreibfehler ist und es eigentlich "Talks" heißen soll. Keine Ahnung, ehrlich! Ist eigentlich wie der Time of Metal nur über alle anderen Themen.
 Er redet zum Beispiel über Animes, Marvil *(gemeint ist damit Marvel)* und macht das was er sonst am besten kann: **Ankündigungen**
 
 
 **Aktuelle Folgenzahl**: 2
+
 
 ## Lets Plays
 
@@ -43,8 +45,28 @@ kann man direkt sehen wie es sich in seinem Drachenhirn fühlt.
 
 **Aktuelle Folgenzahl**: Zu viele
 
+
 ## 4 Drachen (und der Metal)
 
 4 Drachen *(damals 4 Drachen und der Metal)* sind sein Meister- und Lebenswerk. Oscarreif schauspielert Rainer .W einen arbeitslosen Mittelfranken der sich mit seinen schizophrenen Einbildungen sein komplett zerfallenes Haus teilen. Wie eine gelungene Mischung aus **Full House** und **The Amityville Horror** mit einer Prise **The Shining**. Wundervoll! Regie wurde ebenfalls von Rainer .W geführt, der einen Stanley Kubrick in den Schatten stellen kann. Mit einzigartigen Schnittfähigkeiten hat es Rainer .W geschafft eine tolle Szene einfach und schön zum nächsten Industrial übergehen zu lassen. Fazit: **Braucht man nicht schauen, sollte man aber einmal.** [Großartige Sequels sind ebenfalls von dem freiberuflichen Filmemacher-Paar Dorian der Übermensch & Impertinenzius produziert wurden und führen die wundervolle Geschichte fort.](https://www.youtube.com/watch?v=dVYBTr5vb-A)
 
 **Aktuelle Folgenzahl**: 3 (+1)
+
+
+## Vlogs
+
+Eigentlich gibt es hier nichts besonderes dran. Ist das gleiche wie Drache Take (?), nur ohne Titelnummerierung. Völligbelanglos da wieder komplettes Scheißgelaber was keiner braucht.
+
+
+## Drache auf'n Radel
+
+Ist mein Ernst, der Titel ist kein Fehler. Mit dem Format hat uns der Drache so richtig getrollt. Er wollte täglich Videos hochladen, in denen er auf einem *(ich betone extra)* strombetriebenen Indoor-Bike radeln wollte um uns zu zeigen dass er sehr wohl seine Ankündigungen hält. Der Clou: **Das Indoor-Bike war nicht eingeschaltet und hatte damit keinen Widerstand**. Das Format war nach 8 Tagen dann auch wieder vorbei, weil das Rad dann angeblich kaputt war. Oder irgendwas anderes.
+
+**Aktuelle Folgenzahl**: 8
+
+
+## Bekomme ich Antworten
+
+Mal wieder eine super Idee von unserem Drachen. Da er mittlerweile *(mit 20k+ Abonnenten)* einer der großen Player auf YouTube, also ein relevanter YouTube-Star geworden ist, möchte er endlich Antworten von seinen YouTube-Idolen Gronkh und iBlali haben. Dass diese ihn als **arrogant** und als **Spammer** sehen, findet der Drache natürlich gar nicht gut und möchte nun von ihnen wissen was das alles soll. Ob er Antworten bekommen hat? Sitzt Kalli im Rollstuhl? Man kann nur gespannt sein, welche Bigplayer als nächstes in die "Bekomme ich Antworten"-Staffel mit eingesetzt wird. Vielleicht E-nergie?
+
+**Aktuelle Folgenzahl**: 2

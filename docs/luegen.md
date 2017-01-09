@@ -31,6 +31,10 @@
 - Ich kann das schon seit Jahren hab das aber nicht mehr so verfolgt
 - Ich kaufe mir davon was besseres, dann kann ich das auch besser
 
+### Drachenschanze
+- Ich kümmere mich um die Pflanzen auf dem Grundstück
+- Mein Geschirr steht draußen weil ich keinen passenden Schrank dafür habe
+
 ### Votings
 - Also wegen den Hatern müssen wir hier aber dann 50% abziehen
 - Das Voting müssen wir wiederholen weil die Hater das manipulieren

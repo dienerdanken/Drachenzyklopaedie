@@ -4,6 +4,14 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 
 --------
 
+### Standard
+
+| Drachisch | Menschlich |
+| --------- | ---------- |
+| Wuu | Who |
+
+--------
+
 ### Musik
 
 | Drachisch | Menschlich |
@@ -26,6 +34,8 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | Sack Modscho | Stuck Mojo |
 | Hier cum de infäiders / infiddles | Here come the infidels |
 | Wenn der Adler kreist | When the eagle cries |
+| Firnup | Fire it up |
+| Hu Tight Ure how to hate | Who thought you how to hate |
 
 --------
 

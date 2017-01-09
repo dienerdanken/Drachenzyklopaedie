@@ -37,10 +37,13 @@ Er redet zum Beispiel über Animes, Marvil *(gemeint ist damit Marvel)* und mach
 
 ## Lets Plays
 
-Die typisch, schlechten Lets Plays von ihm, in denen man meistens sehr gut sehen kann wie es sich im Drachenhirn so lebt. Unter anderem
-kauft er gerne mal von seinem ganzen Ingame-Gold **Nordmet**, denn Met ist in einem Rollenspiel wie Skyrim natürlich wichtig. Als Metaller
-braucht man das eben. Außerdem versagte er im "Youtubers Life" ebenfalls auf ganzer Linie und hatte am Ende Schulden. Wie gesagt: So
-kann man direkt sehen wie es sich in seinem Drachenhirn fühlt.
+Auf seinem Kanal DrachenGamesLP spielt der Drache entweder durchschnittlich gute Spiele wie z.B: Prototype 2, Life is Strange oder sehr alte Spiele wie z.B: Pokemon Snap, Kirby: The Crystal Shards, The Legend of Zelda: Ocarina of Time und Stardew Valley.
+Die jeweiligen Episoden zeichnen sich durch seine mangelnde Fähigkeit Texte vorzulesen, Sachverhalte verstehen und kombinieren, wenig bis kein vorrausschauendes Denken und schlechtem Gedächtnis aus.
+Dies alles, obwohl er sich, bevor er ein Let's Play macht, Videos von anderen Youtubern zum jeweiligen Spiel oder gleich Komplettlösungen anschaut.
+Ein weiteres, wichtiges Kriterium ist sein Druchhaltevermögen bei einzelnen Spielen. Dies ist nur selten vorhanden. So bricht er zum Beispiel “Die Siedler 4” schon im Tutorial, also vor der eigentlichen Kampange ab.
+
+Meistens kann man sehr gut sehen, wie es sich im Drachenhirn so lebt. Unter anderem
+kauft er gerne mal von seinem ganzen Ingame-Gold **Nordmet**, denn Met ist in einem Rollenspiel wie Skyrim natürlich wichtig. Als Metaller braucht man das eben. Außerdem versagte er im "Youtubers Life" ebenfalls auf ganzer Linie und hatte am Ende Schulden. Wie gesagt: So kann man direkt sehen wie es sich in seinem Drachenhirn fühlt.
 
 
 **Aktuelle Folgenzahl**: Zu viele

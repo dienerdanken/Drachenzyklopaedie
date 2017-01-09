@@ -107,3 +107,9 @@
 
 ### Facebook
 - Hab 200 Euro für ein Online-Spiel ausgegeben, dessen Fortschritt aber durch die Accountsperrung verloren ging
+
+### Ich hab nicht geweint, ...
+- Ich hab nur geschwitzt
+- Ich hab nur wenig geschlafen
+- Ich hab gearbeitet
+- Ich hab geraucht

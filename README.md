@@ -2,7 +2,7 @@
 
 ### [Jetzt lesen](docs/)
 
----
+![Drachenlord](drachentrim.jpg)
 
 ### Mitmachen
 1. Account erstellen
@@ -10,7 +10,7 @@
 3. Änderungen vornehmen
 4. Pull Request einsenden
 
----
+![Drachenlord](drachentrim.jpg)
 
 #### Aktuelle Nachrichten beim Altschauerberg Anzeiger
 [![Altschauerberg Anzeiger](http://i.imgur.com/ziUZi8c.png)](http://altschauerberganzeiger.com/)

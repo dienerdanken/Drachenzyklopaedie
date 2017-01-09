@@ -8,6 +8,7 @@
 
 ### Sonstiges
 * Wortdefinitionen
+* [Drachen-Lingustik und Übersetzungen](linguistik.md)
 
 ### Links
 * [Lachschon](http://www.lachschon.de/forum/thread/show/52816/)

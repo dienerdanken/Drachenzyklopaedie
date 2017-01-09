@@ -1,9 +1,9 @@
 # Drachenzyklopaedie Inhaltsverzeichnis
 
 ### Auflistungen
-* Lügen
-* Ankündigungen
-* Ausreden
+* [Lügen](luegen.md)
+* [Ankündigungen](ankuendigungen.md)
+* [Ausreden](ausreden.md)
 
 ### Sonstiges
 * Wortdefinitionen

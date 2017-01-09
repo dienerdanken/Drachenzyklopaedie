@@ -62,6 +62,8 @@ Eigentlich gibt es hier nichts besonderes dran. Ist das gleiche wie Drache Take 
 
 Ist mein Ernst, der Titel ist kein Fehler. Mit dem Format hat uns der Drache so richtig getrollt. Er wollte täglich Videos hochladen, in denen er auf einem *(ich betone extra)* strombetriebenen Indoor-Bike radeln wollte um uns zu zeigen dass er sehr wohl seine Ankündigungen hält. Der Clou: **Das Indoor-Bike war nicht eingeschaltet und hatte damit keinen Widerstand**. Das Format war nach 9 Tagen dann auch wieder vorbei, weil das Rad dann angeblich kaputt war. Oder irgendwas anderes.
 
+**Wichtig:** Das war sein einziges Videoformat, welches mehr positive Bewertungen als negative Bewertungen hatte. RIP Sportlord
+
 **Aktuelle Folgenzahl**: 9
 
 

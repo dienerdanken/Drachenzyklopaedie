@@ -16,7 +16,7 @@ zum Beispiel "Wer war die Frau im Zoo" stehen hat. Im Video geht es dann um sein
 bringen möchte.
 
 
-**Aktuelle Folgenzahl**: 40
+**Aktuelle Folgenzahl**: 41
 
 ## Alljährliches Adventskranz basteln
 

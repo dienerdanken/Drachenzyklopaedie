@@ -6,10 +6,14 @@
 * [Ankündigungen](ankuendigungen.md)
 * [Formate](formate.md)
 
+![Drachenlord](../drachentrim.png)
+
 ### Sonstiges
 * Wortdefinitionen
 * [Drachen-Lingustik und Übersetzungen](linguistik.md)
 * [Trinkspiele](trinkspiele.md)
+
+![Drachenlord](../drachentrim.png)
 
 ### Links
 * [Lachschon](http://www.lachschon.de/forum/thread/show/52816/)

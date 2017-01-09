@@ -60,9 +60,9 @@ Eigentlich gibt es hier nichts besonderes dran. Ist das gleiche wie Drache Take 
 
 ## Drache auf'n Radel
 
-Ist mein Ernst, der Titel ist kein Fehler. Mit dem Format hat uns der Drache so richtig getrollt. Er wollte täglich Videos hochladen, in denen er auf einem *(ich betone extra)* strombetriebenen Indoor-Bike radeln wollte um uns zu zeigen dass er sehr wohl seine Ankündigungen hält. Der Clou: **Das Indoor-Bike war nicht eingeschaltet und hatte damit keinen Widerstand**. Das Format war nach 8 Tagen dann auch wieder vorbei, weil das Rad dann angeblich kaputt war. Oder irgendwas anderes.
+Ist mein Ernst, der Titel ist kein Fehler. Mit dem Format hat uns der Drache so richtig getrollt. Er wollte täglich Videos hochladen, in denen er auf einem *(ich betone extra)* strombetriebenen Indoor-Bike radeln wollte um uns zu zeigen dass er sehr wohl seine Ankündigungen hält. Der Clou: **Das Indoor-Bike war nicht eingeschaltet und hatte damit keinen Widerstand**. Das Format war nach 9 Tagen dann auch wieder vorbei, weil das Rad dann angeblich kaputt war. Oder irgendwas anderes.
 
-**Aktuelle Folgenzahl**: 8
+**Aktuelle Folgenzahl**: 9
 
 
 ## Bekomme ich Antworten

@@ -1,5 +1,4 @@
-# Drachenzyklopaedie
-Enzyklopädie über den Drachenlord.
+![Drachenzyklopädie](drachenzyklopädie.jpg)
 
 ### [Jetzt lesen](docs/)
 

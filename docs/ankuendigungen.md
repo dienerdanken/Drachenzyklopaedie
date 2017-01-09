@@ -5,6 +5,8 @@
 - Es wird jeden Tag ein neues Video kommen
 - Ich werde Drache läuft als Format im Namen ändern
 - Das ich auch Videos mache wo ich über Ernährung spreche
+- Ich habe da auf jeden Fall schon was in Planung mit anderen großen YouTubern, das wird auf jeden Fall richtig nice
+- Ich will eine Serie aus 4 Drachen und der Metal machen wo sich schon andere YouTuber gemeldet haben um mit zu machen
 
 ### Drachenschanze
 - Ich will eine Art Youtuber-Refugium bauen, wo Youtuber ungestört arbeiten können

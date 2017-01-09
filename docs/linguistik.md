@@ -46,3 +46,19 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | Wout de Häll | What the Hell? |
 | What going you on with your face? | Whats going on in your head? |
 | Häf u Brain Schaden? | Is your brain damaged? |
+
+-------
+
+### Persönliche Namen
+
+| Drachisch | Menschlich |
+| --------- | ---------- |
+| Bonneklinggs | Boneclinks |
+
+------------
+
+## Praxisvideos
+
+* [Rainers Referat](https://www.youtube.com/watch?v=BLl7AwSeB6U)
+* [Drachenlord vs. Bonneklings](https://www.youtube.com/watch?v=KllorFSo7XQ)
+* [Drachenlord lernt Englisch](https://www.youtube.com/watch?v=Hgo14B_VPI8)

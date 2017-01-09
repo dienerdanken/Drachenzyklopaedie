@@ -1,8 +1,6 @@
 # Drachenzyklopaedie
 Enzyklopädie über den Drachenlord.
 
----
-
 ### [Jetzt lesen](docs/)
 
 ---
@@ -15,5 +13,5 @@ Enzyklopädie über den Drachenlord.
 
 ---
 
-#### In Kooperation mit dem Altschauerberg Anzeiger
+#### Aktuelle Nachrichten beim Altschauerberg Anzeiger
 [![Altschauerberg Anzeiger](http://i.imgur.com/ziUZi8c.png)](http://altschauerberganzeiger.com/)

@@ -15,3 +15,8 @@ Enzyklopädie über den Drachenlord.
 
 #### Aktuelle Nachrichten beim Altschauerberg Anzeiger
 [![Altschauerberg Anzeiger](http://i.imgur.com/ziUZi8c.png)](http://altschauerberganzeiger.com/)
+
+---
+
+[Stream-Mitschnitte von Abc Def](https://www.youtube.com/channel/UCSVfnakoorkTigCAh-qdd2g)<br />
+[Drachenlord Reuploads bei Cpt.Meddl](http://cptmeddl.bplaced.net/)

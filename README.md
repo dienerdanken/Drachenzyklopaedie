@@ -13,4 +13,7 @@ Enzyklopädie über den Drachenlord.
 3. Änderungen vornehmen
 4. Pull Request einsenden
 
-##### Grüße
+---
+
+#### In Kooperation mit dem Altschauerberg Anzeiger
+[![Altschauerberg Anzeiger](http://i.imgur.com/ziUZi8c.png)](http://altschauerberganzeiger.com/)

@@ -42,6 +42,8 @@
 - Ohne die Hater würde das hier alles viel besser laufen
 
 ### Sport
+- Für mich ist es mit meinen 155 Kilo kein Problem damit nach Emskirchen und zurück zu laufen, was insgesamt ungefähr 10km sind
+  - **Funfact**: Eine Strecke ist 2,5km weit, insgesamt sind wir also bei 5km
 - Ich bin für mein Gewicht fitter als andere
 - Ich war schon immer ein sportlicher Mensch
 - Ich kann für mein Gewicht mehr machen als andere

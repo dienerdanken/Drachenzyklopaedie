@@ -21,5 +21,6 @@
 - **Qu4rkey**
   - Anpassung von Formaten
   - Neue Formate
+  - Liste beliebter Beleidigungen unter Linguistik
 - **dienerdanken**
   - kleinere Änderungen in der Lügen/Ausreden Liste

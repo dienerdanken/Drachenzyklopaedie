@@ -88,10 +88,10 @@ Wenn man es erst einmal geschafft hat, ein erfolgreicher Youtuber zu sein, dann 
 
 Dieses Format ist eine Unterkategorie der **Frag Drache** Videos. Hier äußerst er sich zu Fragen die er per Twitter bekommen hat, die rein das Thema Sexualität beinhalten. Da der Drachenlord jedoch ca. 13% Haider hat, schleichen sich vorallem zu diesem Thema manchmal, aber wirklich nur manchmal!, lustige Fragen ein:
 
-*Wichst du nur, oder steckst du dir auch den Finger in den Po?*
-*Hast du dir schon mal einen Rettich oder anderes Gemüse eingeführt?* 
-*Würdest du dir deine Prostata mit einem belgischen Spargel massieren, wenn du dein Prostatamassagegerät nicht finden würdest?*
-*Kannst du dir vorstellen, dein Leben mit einem Mann zu verbringen, wenn es mit Frauen nichts wird?*
+* *Wichst du nur, oder steckst du dir auch den Finger in den Po?*
+* *Hast du dir schon mal einen Rettich oder anderes Gemüse eingeführt?* 
+* *Würdest du dir deine Prostata mit einem belgischen Spargel massieren, wenn du dein Prostatamassagegerät nicht finden würdest?*
+* *Kannst du dir vorstellen, dein Leben mit einem Mann zu verbringen, wenn es mit Frauen nichts wird?*
 
  
  **Aktuelle Folgenzahl**: 6

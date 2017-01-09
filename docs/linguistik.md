@@ -43,3 +43,6 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | I raigt | I know |
 | I have not full guys mit can't speak english | I have no one to speak english with |
 | You cannot my stream in your stream | You can't restream my stream in your stream |
+| Wout de Häll | What the Hell? |
+| What going you on with your face? | Whats going on in your head? |
+| Häf u Brain Schaden? | Is your brain damaged? |

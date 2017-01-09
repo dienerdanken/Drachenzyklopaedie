@@ -2,8 +2,9 @@
 
 ### Auflistungen
 * [Lügen](luegen.md)
-* [Ankündigungen](ankuendigungen.md)
 * [Ausreden](ausreden.md)
+* [Ankündigungen](ankuendigungen.md)
+* [Formate](formate.md)
 
 ### Sonstiges
 * Wortdefinitionen

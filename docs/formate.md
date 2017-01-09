@@ -42,3 +42,9 @@ kann man direkt sehen wie es sich in seinem Drachenhirn fühlt.
 
 
 **Aktuelle Folgenzahl**: Zu viele
+
+## 4 Drachen (und der Metal)
+
+4 Drachen *(damals 4 Drachen und der Metal)* sind sein Meister- und Lebenswerk. Oscarreif schauspielert Rainer .W einen arbeitslosen Mittelfranken der sich mit seinen schizophrenen Einbildungen sein komplett zerfallenes Haus teilen. Wie eine gelungene Mischung aus **Full House** und **The Amityville Horror** mit einer Prise **The Shining**. Wundervoll! Regie wurde ebenfalls von Rainer .W geführt, der einen Stanley Kubrick in den Schatten stellen kann. Mit einzigartigen Schnittfähigkeiten hat es Rainer .W geschafft eine tolle Szene einfach und schön zum nächsten Industrial übergehen zu lassen. Fazit: **Braucht man nicht schauen, sollte man aber einmal.** Großartige Sequels sind ebenfalls von dem freiberuflichen Filmemacher-Paar Dorian der Übermensch & Impertinenzius produziert wurden und führen die wundervolle Geschichte fort.
+
+**Aktuelle Folgenzahl**: 3 (+1)

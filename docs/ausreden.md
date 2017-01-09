@@ -27,6 +27,8 @@
 - War anders gemeint / die meisten verstehen mit ned oder verstehen es anders als ich es gesagt habe
 - War Sarkasmus / iRuNi
 - Nur gesagt um die Reichweite zu erhöhen
+- Ich trage den Pulli jetzt jeden Tag für den Winter, das ist ein Running Gag
+  - **Funfact**: Er trägt ihn nicht mehr. War wohl kein Running Gag. Außerdem lieber Rainer ist ein Running Gag kein unhygienisches Kleidungsstück, sondern ein Insider-Witz der in der Serie immer mal wieder aufgegriffen wird. Zu wenig Geld für die Waschmaschine ist kein Running-Gag.
 
 ### Fähigkeiten (Wie Instrumente spielen)
 - Der/Die/Das XYZ nervt mich, ich brauch da dringend mal ein neues

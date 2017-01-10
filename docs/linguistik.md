@@ -67,7 +67,22 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | --------- | ---------- |
 | Bonneklinggs | Boneclinks |
 
-------------
+-------
+
+### Beleidigungen
+
+* Du Nuttensohn, was bist'n du für'n Lappen?
+* Affenneger
+* Wiggsgrübbel
+* Spastiker
+* Stirb einen qualvollen grausamen Kindergartentod
+* Du fickst sogar noch deine Mutter, weil sie's Geld braucht
+* Warum hier so viele Haider sind? (im Stream) Weil's Spastis sind
+* Kagghaider
+* ihr Spackos
+* *schnauf* dann kann ich dich ja gleich mit bannen? Nä, du Asi! (im TS)
+
+--------
 
 ## Praxisvideos
 

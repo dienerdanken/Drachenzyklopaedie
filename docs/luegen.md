@@ -3,7 +3,6 @@
 ### Allgemein
 - Ich brauche keine Rauchmelder weil ich das CO2 rieche und außerdem ist mein Fenster gekippt
 - Da werd ich mich bald mal drum kümmern.
-- Mein Nachbar hat die Eppeleins Ruine wieder aufgebaut
 
 ### Hater ignorieren
 - Geht eigentlich garnicht (mehr) auf die Hater ein
@@ -124,6 +123,7 @@
 - Die Katze ist nicht meine Katze sondern von einem Nachbar
 - In Emskirchen wohnen so 10-20k
 - Bayern hat so 100k Einwohner
+- Mein Nachbar hat die Eppeleins Ruine wieder aufgebaut
 
 ### Gronkh / Iblali
 - Mit dem Mittelfinger war Gronkh/Iblali gemeint. (Wechsel nach Bedarf)

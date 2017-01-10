@@ -9,7 +9,7 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 | Drachisch | Menschlich |
 | --------- | ---------- |
 | Wuu | Who |
-|etzalla|etzalda, _Fränkisch für jetzt, gerne als Füllwort_|
+| (j)etza(d)la | _(Fränkisch für jetzt, gerne als Füllwort)_ |
 
 --------
 
@@ -40,12 +40,22 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 
 --------
 
+### Gaming
+
+| Drachisch | Menschlich |
+| --------- | ---------- |
+| Life is/of Stranger | Life is Strange |
+
+
+
 ### Zwischenmenschlich
 
 | Drachisch | Menschlich |
 | --------- | ---------- |
-| Ju are bräyn basted | You're brainbusted |
+| Have you bräyn basted? | Are you brainbusted? (Hast du einen Hirnschaden?) |
 | Whäy ar ju duing, warum tust du des | Why are you doing this |
+| Whäy | Why |
+| Halt yur mauf | Halt deinen Mund |
 | Gai | Dude |
 | I find das not funny, ehm is not funny for me | I don't think this is funny |
 | Aber I not | But not me |
@@ -65,7 +75,7 @@ Hier gibt es eine kleine Hilfestellung bezüglich der Sprache der Drachen.
 
 | Drachisch | Menschlich |
 | --------- | ---------- |
-| Bonneklinggs | Boneclinks |
+| Bonnklicks | Boneclinks |
 
 -------
 

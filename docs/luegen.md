@@ -4,7 +4,6 @@
 - Ich brauche keine Rauchmelder weil ich das CO2 rieche und außerdem ist mein Fenster gekippt
 - Da werd ich mich bald mal drum kümmern.
 - Mein Nachbar hat die Eppeleins Ruine wieder aufgebaut
-- 
 
 ### Hater ignorieren
 - Geht eigentlich garnicht (mehr) auf die Hater ein

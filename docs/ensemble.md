@@ -3,11 +3,11 @@
 
 ### Protagonisten:
 
-Drache Offiziell: https://www.youtube.com/user/DrachenLord1510
-DrachenGamesLP: https://www.youtube.com/channel/UCMl7TI-xQ6Qv_H7FsEX7pRQ
-Regenbogenschaf: https://www.youtube.com/user/rgnbgnschf
-Boneclinks: https://www.youtube.com/channel/UChrh7morqhczDOTIkRD5chA
-Dorian der Übermensch: https://www.youtube.com/user/HerrDorian
+* Drache Offiziell: https://www.youtube.com/user/DrachenLord1510
+* DrachenGamesLP: https://www.youtube.com/channel/UCMl7TI-xQ6Qv_H7FsEX7pRQ
+* Regenbogenschaf: https://www.youtube.com/user/rgnbgnschf
+* Boneclinks: https://www.youtube.com/channel/UChrh7morqhczDOTIkRD5chA
+* Dorian der Übermensch: https://www.youtube.com/user/HerrDorian
 
 ### Lieferanten:
 
